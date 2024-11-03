@@ -79,7 +79,7 @@ Contributions are welcome! If you have suggestions or improvements, please submi
 
 ## Contact
 
-For any questions or feedback, you can reach out to [gaurityaggi7524@gmail.com](mailto:gaurityagi7524@gmail.com).
+For any questions or feedback, you can reach out to [gaurityagi7524@gmail.com](mailto:gaurityagi7524@gmail.com).
 
 ---
 Made with 🤍💖!!
